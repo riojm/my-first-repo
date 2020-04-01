@@ -1,0 +1,1 @@
+ini query pertama gue
